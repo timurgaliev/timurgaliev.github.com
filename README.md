@@ -1,1 +1,1 @@
-# timurgaliev.github.com
+# timurgaliev.github.io
